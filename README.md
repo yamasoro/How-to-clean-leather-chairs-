@@ -14,3 +14,6 @@ Dip a clean, non-fading towel into the diluted solution of neutral detergent, wi
 Wipe the seat leather with a cleaning sponge and squeeze dirty water from the sponge in time. Wipe for 2~3 times, and then wipe with a clean, non-fading towel.
 4.
 After completing the above steps, you can use the leather care agent, which could not only make the appearance brighter, but also prolong the service life of the chair.
+https://yamasoro.co/
+https://yamasoro.co/products/yamasoro-ergonomic-office-chair-3288
+https://yamasoro.co/products/yamasoro-executive-office-chair-3286
